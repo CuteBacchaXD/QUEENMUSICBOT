@@ -50,4 +50,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![ϲнєєяγ](https://graph.org/file/a8504a33f2a20b63f8adf.jpg)
+[![ϲнєєяγ](https://graph.org/file/ece21f21f0a7f34d7bcb9.jpg)](https://t.me/I_LOVE_YOU_MY_HEARTBEET)
