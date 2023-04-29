@@ -1,11 +1,11 @@
 ### Best Smart Voice Chat Music Robot For Telegram Groups ...
 
 
-<p align="center"><a href="https://t.me/BikashHalder"><img src="https://te.legra.ph/file/99d0261f0aa5512ad6753.jpg"></a></p>
+<p align="center"><a href="https://t.me/I_LOVE_YOU_MY_HEARTBEET"><img src="https://graph.org/file/a8504a33f2a20b63f8adf.jpg"></a></p>
 
 ### Deploy To Heroku
 
-[![Deploy+On+Heroku](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/BikashhalderNew/BGTMUSICBOT2)
+[![Deploy+On+Heroku](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/CuteBacchaXD/QUEENMUSICBOT)
 
 ## Give A Star
 🌷 You can Deploy Easily Fork repo and Give Start 🌷
@@ -18,27 +18,27 @@
 [Kaali Linux](https://youtu.be/_nZT5lhcL8U)
 
 ## ⚒️ 𝐂𝐫𝐞𝐝𝐢𝐭
-[𝐁𝐢𝐤𝐚𝐬𝐡](https://t.me/BikashHalder)
+[ϲнєєяγ](https://t.me/I_LOVE_YOU_MY_HEARTBEET)
 
 ## Telegram 🏪
 
-[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/BGT_Chat)
+[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/ISHQ00_I)
 
-[![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/Bikashgadgetstech)
+[![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/XD_CUTETY)
 
 ## YouTube 📺
 
 [YouTube Channel](https://youtube.com/channel/UCUkj6FFzdsOO5acUXVOEECg)
 
 
-#### Main Developer = [Bikash](https://t.me/BikashHalder)
+#### Main Developer = [ϲнєєяγ](https://t.me/I_LOVE_YOU_MY_HEARTBEET)
 
 ## 💕 Special Thanks
 
 ✅ Aditya Halder Thanks For Fixed All Error Or Lovely Support 💕
 
 
-## 🥀 Powered By [BikashHalder](https://t.me/Bikashhalder) & [AdityaHalder](https://t.me/Adityahalder)
+## 🥀 Powered By [ϲнєєяγ](https://t.me/I_LOVE_YOU_MY_HEARTBEET) 
 
 
 ### Get String Session
@@ -50,4 +50,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![Bikash Halder](https://te.legra.ph/file/840fed0100164af249bb8.jpg)](https://t.me/BikashHalder)
+[![ϲнєєяγ](https://graph.org/file/a8504a33f2a20b63f8adf.jpg)
