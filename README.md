@@ -35,7 +35,7 @@
 
 ## 💕 Special Thanks
 
-✅ Aditya Halder Thanks For Fixed All Error Or Lovely Support 💕
+✅ Ykd owners Thanks For Fixed All Error Or Lovely Support 💕
 
 
 ## 🥀 Powered By [ϲнєєяγ](https://t.me/I_LOVE_YOU_MY_HEARTBEET) 
